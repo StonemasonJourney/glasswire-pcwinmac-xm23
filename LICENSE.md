@@ -1,4 +1,4 @@
-# 
+# Ultimato GlassWire extensões para Mac OS | Profissional GlassWire extensões para PC Windows. Com monitoramento da dark web e armazenamento de cartões — otimizado para máximo desempenho em cada plataforma.
 
 
 
